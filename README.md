@@ -1,3 +1,3 @@
-## [The Crystal - Tower Defense Idle](https://play.google.com/store/apps/details?id=com.maramak.tctd)
+## [Epic Rush - Idle Tower Defense](https://play.google.com/store/apps/details?id=epic.fantasy.home.school)
 
-maramak.aod@gmail.com
+paul.maramak.fursov@gmail.com
